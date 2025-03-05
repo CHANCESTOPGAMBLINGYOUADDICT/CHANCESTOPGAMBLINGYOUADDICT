@@ -1,5 +1,5 @@
 
--  Hallo!! I’m Chance!! but my name is Aubrey!! you can use either :3
+-  Hallo!! I’m Anya!! but my name is Aubrey!! you can use either :3
 
 -  umm in a pretty goofy person that has a weird personality and here are some words i use alot :D "LMAO, lolol, HELP, WJART, OML, CRIES, SCREAMS, OMH, RUNS AWAY, slowly approaches," and more that idk! :]
 
