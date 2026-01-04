@@ -3,7 +3,7 @@
 
 -  hey so like i have an awesome personality - please dni if i seem angry on ponytown or smth eheheheheh
 
-- i play andy games, deltarune, dandy's world, adopt me, catalog avatar creator, booth game, spraypaint, posiums VC, and Sing it!
+- i play many games like, deltarune, dandy's world, adopt me, catalog avatar creator, booth game, spraypaint, posiums VC, and Sing it!
 
 - my music taste is, sodikken, penelope scott, mitski, Bmike, Melanie Martinez, MSI, Ghost and Pals, and Blushcrunch!
 
