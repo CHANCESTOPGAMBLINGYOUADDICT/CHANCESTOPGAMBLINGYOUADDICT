@@ -9,6 +9,6 @@
 
 - sign my atabook!
 
-- i work har don my ponys, so if you copy them i will be upet, but you may take inspo!
+- i work hard on my ponys, so if you copy them i will be upset, but you may take inspo!
 
 -
