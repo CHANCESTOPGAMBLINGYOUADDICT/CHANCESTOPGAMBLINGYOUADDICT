@@ -1,5 +1,5 @@
 
--  Hallo!! Im Bobette! call me that or call me whatever im wearing on ponytown
+-  Hallo!! Im Whimsy! call me that or call me whatever im wearing on ponytown
 
 -  hey so like i have an awesome personality - please dni if i seem angry on ponytown or smth eheheheheh
 
